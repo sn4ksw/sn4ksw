@@ -1,5 +1,5 @@
 ### Hi there 👋
-### joja glitchless% https://drive.google.com/file/d/1xw01Oz86guYzCwxWcPMB7C8HiA5PbGox/view?usp=share_link
+### joja glitchless%(82 minutes) https://drive.google.com/file/d/1xw01Oz86guYzCwxWcPMB7C8HiA5PbGox/view?usp=share_link
 <!--
 **sn4ksw/sn4ksw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
